@@ -1,2 +1,2 @@
-# QuinnXie.github.io
+# Kui Xie
 Personal home page
